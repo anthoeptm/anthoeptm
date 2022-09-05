@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @antoeptm
+- This is my school account on github
